@@ -18,8 +18,11 @@ Rodando o código
 
 
 Segue minhas redes de contato
+
 https://www.linkedin.com/in/diogo-santos01/
+
 Gmail: diogosantosferreira.01@gmail.com
+
 Whatsapp: 98 988837650
 
 Thankss :)
