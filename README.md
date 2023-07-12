@@ -19,7 +19,7 @@ Rodando o código
 
 Segue minhas redes de contato
 
-https://www.linkedin.com/in/diogo-santos01/
+Linkedin: https://www.linkedin.com/in/diogo-santos01/
 
 Gmail: diogosantosferreira.01@gmail.com
 
